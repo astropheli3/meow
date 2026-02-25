@@ -29,7 +29,6 @@
     <img width="45%" src="https://64.media.tumblr.com/c077b74e51756be92c7cfb55a4edb222/41e893510206fca5-22/s1280x1920/d3895d62f46234105b59bde9f9a87a27ad2d91b9.pnj">
 </p>
 
----
 
 <SUP> Cherie graphic by [lavendergalactic](https://www.tumblr.com/lavendergalactic/749874676344520704/cherie-rentry-graphics) <br>
 Nepeta graphic by [t0kens-res0urces](https://www.tumblr.com/t0kens-res0urces/768347748450877440/hello-is-it-possible-for-me-to-request-some)
